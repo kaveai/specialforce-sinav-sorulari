@@ -1,4 +1,4 @@
-# Ka|Ve 2024 - Yapay Zeka Special Force Eğitimi - Seçme Sınav Soruları
+# Ka|Ve 2025 - Yapay Zeka Special Force Eğitimi - Seçme Sınav Soruları
 
 
 Başvuru kabulü için size sorulan soruyu çözmenizden çok, o soruyu çözmek için ne kadar uğraştığınız önemlidir. Motivasyonu yüksek gençlerle çalışmak çok farklı, bunu biliyoruz, sizi önemsiyoruz ve bekliyoruz.
